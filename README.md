@@ -1,10 +1,10 @@
-# Cytus 2 iM Post & OS Log Archive
+# Cytus 2 iM Посты & OS Архив записей
 
-Archives of Cytus 2 iM posts and OS Archives, all in Markdown.
+Архив iM Постов and OS Записей из Cytus 2, всё в Markdown.
 
-**DISCLAIMER:** All images and videos linked are properites of Rayark Games.
-The only thing I did was put the entire storyline in a readable format.
+**DISCLAIMER:** Все изображения и видео, на которые даны ссылки, являются собственностью Rayark Games.
+Единственное, что сделал iFailatGitHub, - это перевел всю сюжетную линию в удобочитаемый формат.
+Я занимаюсь лишь переводом этих данных на русский язык.
 
-If you want a PDF of the archives, [click here](https://drive.google.com/drive/u/1/folders/1D3r2BPDLAbkMhzs7Eg3-Pr5s_nH3zqbk).
+Текущий прогресс 0%
 
-If you want a playlist of Cytus 2 story videos, [click here](https://www.youtube.com/playlist?list=PL3-MQSMT3c7wwzAqf6UC2c149HecsYC2o).
