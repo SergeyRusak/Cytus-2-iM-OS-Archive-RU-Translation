@@ -1,5 +1,5 @@
-# PAFF iM Posts
-## List of Posts
+# PAFF iM Посты
+## Список постов
 - [iM Post #001](#im-post-001)
 - [iM Post #002](#im-post-002)
 - [iM Post #003](#im-post-003)
@@ -37,74 +37,74 @@
 |**KANATA**|PAFF |Easy | 2 |
 |**KANATA**|PAFF |Hard | 6 |
 
-### New Song Released.
+### Релиз новой песни.
 **PAFF-Official**  
-New Song Released.
+Релиз новой песни.
 
 ![p0101.png](./attachments/p0101.png)
-### Replies
+### Ответы
 **iluvpuf**  
-So short! Must be her!!
+Так коротко! Это точно она!!
 
 **PoolsKitten**  
-It's the real PAFF!!
+Это же настоящая PAFF!!
 
 **m00nl16h7**  
-PAFF I will definitely download it!
+PAFF, я точно её скачаю!
 
 **LyLah1207**  
 **\\PAFF/****\\PAFF/****\\PAFF/**
 
 **PrideCr0w**  
-Shut up and take my money!!
+Заткнись и возьми мои деньги!!
 
 **lenba**  
-PAFF I liked you since your very first EP <3
+PAFF, ты мне понравилась ещё с первого аьбома <3
 
 **xxScarlexx**  
 ♡♡♡♡
 
 **Sopheee**  
-It's a dream come true to listen to PAFF's song for the whole day
+Мечта - слушать песни PAFF целый день
 
 **CeLiA**  
-Living in the same Node as PAFF, so blessed
+Так повезло жить в той же Ноде, что и PAFF
 
 **SancTityKnight**  
-Man I'm jealous. I want to live in Node08 too
+Чувак, я завидую. Я тоже хочу жить в Ноде08
 
 **vvv_IRIS_vvv**  
-PAFF ever think about a Q&A event? ：D
+PAFF, думала на счёт вопрос-ответов? ：D
 
 **Rob_Oto**  
-Nonstop loop play...
+Слушаем без остановок...
 
 **CandiceNaoko**  
-The entire Node can hear PAFF's singing!
+Вся Нода может слышать как PAFF поёт!
 
 **Pascal626**  
-PAFF do you remember me? The one that gave you chocolate at the last event!!
+PAFF, ты помнишь меня? Я тот, кто дал тебе шоколадку на прошлом мероприятии!!
 
 **AbbEE**  
-I want to sing as well as PAFF
+Я хочу петь также хокошо, как PAFF
 
 **beeeeeeeeee**  
-How can it be so gooooddd\~ QAQ
+Как может быть так хорошооооо\~ QAQ
 
 **CyKa**  
-It's amazing!!!! Love you PAFF!!
+Это шедевр!!!! Люблю тебя PAFF!!
 
 **noneXenon**  
-Keep it up PAFF^^
+Так держать PAFF^^
 
 **MustangMartin**  
-Your voice is very charming indeed \~\~ <3
+Твой голос действительно очарователен \~\~ <3
 
 **MAN_Dora**  
 ♡♡♡♡
 
 **Heart_Head**  
-BOUGHT!
+ПРОДАНО!
 
 
 [Back to Top](#list-of-posts) | [Next Log](#im-post-002)
@@ -123,51 +123,51 @@ BOUGHT!
 |----------|:---:|:---:|:-:|
 |**KANATA**|PAFF |Chaos| 9 |
 
-### \[Announcement\] Connect to major platforms now!
+### \[Объявление\] Подключись к основным платформам прямо сейчас!
 **PAFF-Official**  
-The released new song "KANATA" took a long time to prepare. During the production, the composer and producer helped me a lot!
+Подготовка к выходу новой песни "KANATA" заняла много времени. Во время производства, композитор и продюсер мне много помогали!
 
-Special thanks to A.R.C. for sponsoring the newest holo\-recreation technology! PUFFERs can now join PAFF on stage and sing together!
+Отдельное спасибо A.R.C. за спонсирование новой технологии холо\-рекреации! Теперь пафферы могут присоединиться к PAFF на сцене и петь вместе!
 
-Visit the major platforms to connect now!
+Посещайте основные платформы, чтобы подключиться прямо сейчас!
 
 ![p0201.png](./attachments/p0201.png)
 ### Replies
 **SancTityKnight**  
-Sounds pretty cool!!!
+Звучит очень здорово!!!
 
 **Lynx87**  
-Holo\-recreation? WTH is that? ：O
+Холо\-рекреация? ВТФ, чё это? ：O
 
 **Sleepsystem**  
-No idea what it is.
+Вообще без идей.
 
 **CyKa**  
-I'm telling you, you guys need to read more\~
+А я говорил, что вам, друзья, нужно больше читать\~
 
 **NEKOSAIKOU**  
-Stop acting like you know everything lol
+Перестань вести себя так, будто всё знаешь лол
 
 **m00nl16h7**  
-\\We all know about PAFF's hard work/
+\\Мы все знаем как PAFF усердно работает/
 
 **SuduMan**  
-Damn my phone doesn't support it arghhh!!
+Чёрт мой телефон не поддерживает АААААА!!
 
 **iluvpuf**  
-I see a lost NEKO fanboy, gtfo...
+Я вижу потерянного NEKO фанбоя, вали...
 
 **Marshall**  
-I'm ready, body and mind. (?)
+Я готов, телом и разумом. (?)
 
 **PoolsKitten**  
-Marry me PAFF! <3
+Женись на мне PAFF! <3
 
 **xxScarlexx**  
 ♡♡♡♡
 
 **AngryFan**  
-Stop bundling a bunch of junk with it OK! Feels cheated!
+Прекрати навязывать кучу мусора, Окей! Чуствуешь себя обманутым!
 
 
 [Last Log](#im-post-001) | [Back to Top](#list-of-posts) | [Next Log](#im-post-003)
@@ -187,62 +187,62 @@ Stop bundling a bunch of junk with it OK! Feels cheated!
 |**Fight Another Day (Andy Tunstall remix)**|PAFF |Easy | 2 |
 |**Fight Another Day (Andy Tunstall remix)**|PAFF |Hard | 6 |
 
-### Thank you.
+### Спасибо.
 **PAFF-Official**  
-Over 1 Million views now. Thank you, everybody.
+Уже больше милиона просмотров. Всем спасибо.
 
 ![p0301.png](./attachments/p0301.png)
 ### Replies
 **CyKa**  
-Only PAFF can surpass PAFF
+Только PAFF может превзойти PAFF
 
 **iluvpuf**  
-Looks like your next Platinum record is not too far away!
+Похоже следующий Платиновый рекорд не за горами!
 
 **ArupakaKUN**  
 \\PAFF/ \\PAFF/ \\PAFF/ \\PAFF/
 
 **MustangMartin**  
-All my friends are listening to the song <3
+Все мои друзья слушают эту песню <3
 
 **EdgeMan**  
-I don't have any friends...
+У меня нет друзей...
 
 **SancTityKnight**  
-1M already? PAFF is really amazing\~
+Уже один мульт? PAFF, это офигенно\~
 
 **AbbEE**  
-Not surprised. PAFF gets all the records!
+Не удивлён. PAFF бьёт все рекорды!
 
 **NEKOSAIKOU**  
-Pfft what's with the attitude? Think you're a diva?
+Пффф, что за отношение? Считаешь, что ты дива?
 
 **Lynx87**  
-F\*\*\* off you noob!!
+С\*\*\*\*л от сюда noob!!
 
 **CeLiA**  
 PAFF SAIKOU!
 
 **CandiceNaoko**  
-PAFF please post some more. Want to talk with you >///<
+PAFF, пожалуйста пиши больше. Хотим поговорить с тобой >///<
 
 **An0nym0us**  
-Agreed. Usually it's the admins posting
+Согласен. Обычно тут постит админ.
 
 **m00nl16h7**  
-Want to chat with PAFF ˊ▽ˋ
+Хочу разговаривать с PAFF ˊ▽ˋ
 
 **Anonymous**  
 Stream \~\~\~\~
 
 **vvv_IRIS_vvv**  
-PAFF is really busy, don't bother her
+PAFF сильно занята, не беспокойте её
 
 **Sopheee**  
-PAFF! PAFF! PAFF! I really love you\~\~
+PAFF! PAFF! PAFF! Я люблю тебя очень сильно\~\~
 
 **PoolsKitten**  
-PAFF for life
+PAFF на всю жизнь
 
 **Pascal626**  
 L\-O\-V\-E PAFF \\oo/
